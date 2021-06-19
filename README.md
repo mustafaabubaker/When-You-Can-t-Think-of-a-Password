@@ -1,1 +1,1 @@
-# When-You-Can-t-Think-of-a-Password
+# When-You-Cant-Think-of-a-Password
